@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm Faith! 🚀
+# 👋 Hey there, I'm Faith Laboso! 🚀
 
 ## AI | ML | Cloud | LLMs | Tech Sales | Assistive Tech | Sustainability
 
